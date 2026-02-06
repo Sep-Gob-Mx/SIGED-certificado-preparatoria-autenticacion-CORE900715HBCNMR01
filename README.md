@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CORE900715HBCNMR01
+CORE900715HBCNMR01
